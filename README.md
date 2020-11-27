@@ -4,45 +4,55 @@ The wall
 
 
 
-Is there anybody in there?
-Just nod if you can hear me
-Is there anyone home?
-Come on now
-I hear you're feeling down
-Well I can ease your pain
-Get you on your feet again
-Relax
-I'll need some information first
-Just the basic facts
-Can you show me where it hurts?
-There is no pain you are receding
-A distant ship smoke on the horizon
-You are only coming through in waves
-Your lips move but I can't hear what you're saying
-When I was a child I had a fever
-My hands felt just like two balloons
-Now I've got that feeling once again
-I can't explain you would not understand
-This is not how I am
-I have become comfortably numb
-I have become comfortably numb
-Okay (okay, okay, okay)
-Just a little pinprick
-There'll be no more, ah
-But you may feel a little sick
-Can you stand up?
-I do believe it's working, good
-That'll keep you going through the show
-Come on it's time to go
-There is no pain you are receding
-A distant ship, smoke on the horizon
-You are only coming through in waves
-Your lips move but I can't hear what you're saying
-When I was a child
-I caught a fleeting glimpse
-Out of the corner of my eye
-I turned to look but it was gone
-I cannot put my finger on it now
-The child is grown
-The dream is gone
-I have become comfortably numb
+Is there anybody in there?<br/>
+Just nod if you can hear me<br/>
+Is there anyone home?<br/>
+Come on now<br/>
+<br/>
+I hear you're feeling down<br/>
+Well I can ease your pain<br/>
+Get you on your feet again<br/>
+Relax<br/>
+<br/>
+I'll need some information first<br/>
+Just the basic facts<br/>
+Can you show me where it hurts?<br/>
+There is no pain you are receding<br/>
+<br/>
+A distant ship smoke on the horizon<br/>
+You are only coming through in waves<br/>
+Your lips move but I can't hear what you're saying<br/>
+When I was a child I had a fever<br/>
+<br/>
+My hands felt just like two balloons<br/>
+Now I've got that feeling once again<br/>
+I can't explain you would not understand<br/>
+This is not how I am<br/>
+<br/>
+I have become comfortably numb<br/>
+I have become comfortably numb<br/>
+<br/>
+Okay (okay, okay, okay)<br/>
+Just a little pinprick<br/>
+There'll be no more, ah<br/>
+But you may feel a little sick<br/>
+<br/>
+Can you stand up?<br/>
+I do believe it's working, good<br/>
+That'll keep you going through the show<br/>
+Come on it's time to go<br/>
+There is no pain you are receding<br/>
+<br/>
+A distant ship, smoke on the horizon<br/>
+You are only coming through in waves<br/>
+Your lips move but I can't hear what you're saying<br/>
+When I was a child<br/>
+<br/>
+I caught a fleeting glimpse<br/>
+Out of the corner of my eye<br/>
+I turned to look but it was gone<br/>
+I cannot put my finger on it now<br/>
+<br/>
+The child is grown<br/>
+The dream is gone<br/>
+I have become comfortably numb<br/>
